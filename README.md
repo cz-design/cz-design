@@ -3,4 +3,3 @@
 - I am also creating a rock album to use for promoting my recording skills for the studio I am building.
 - 💞️ I’m looking to collaborate on anything interesting with other humans whose vibes spark with mine.
 - 📫 You can find me on Facebook (facebook.com/chriszell.music), Instagram (@chriszell.human), and LinkedIn (linkedin.com/in/chris-zell/).
-
